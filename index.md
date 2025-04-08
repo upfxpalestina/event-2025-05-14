@@ -1,4 +1,4 @@
-**Shahd Abusalama**
+**A book talk by Shahd Abusalama**
 
 in conversation with Cristina Mas
 
