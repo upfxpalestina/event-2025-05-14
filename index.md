@@ -14,3 +14,9 @@ Hosted by the [UPF in Solidarity with Palestine collective](https://upfxpalestin
 
 Purchase Dr. Abusalama's book:<br>
 <a href="https://www.bloomsbury.com/uk/between-reality-and-documentary-9780755653119/"><img src="book_cover.jpg" alt="book cover" style="width:200px;"/></a>
+
+<br>
+
+Download Poster:<br>
+<a href="upf4pal_bookfair_abusalama_2025_04_28.jpeg"><img src="upf4pal_bookfair_abusalama_2025_04_28.jpeg" alt="poster" style="width:200px;"/></a>
+
