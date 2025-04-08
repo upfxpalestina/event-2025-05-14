@@ -14,5 +14,5 @@ Cristina Mas is a world reporter at the Ara newspaper.
 
 Hosted by the UPF in Solidarity with Palestine collective and the Red Universitaria por Palestina (RUxP).
 
-Dr. Abusalama's book can be purchased at:
+Purchase Dr. Abusalama's book:<br>
 <a href="https://www.bloomsbury.com/uk/between-reality-and-documentary-9780755653119/"><img src="book_cover.jpg" alt="book cover" style="width:200px;"/></a>
