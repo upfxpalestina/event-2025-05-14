@@ -1,4 +1,4 @@
-**A book talk by Shahd Abusalama in conversation with Cristina Mas**
+**A book talk by [Shahd Abusalama](https://palestinefrommyeyes.com) in conversation with Cristina Mas**
 
 **Monday, 28 April 2025, at 18:00**
 
