@@ -2,7 +2,7 @@
 
 **Monday, 28 April 2025, at 18:00**
 
-**Sala Albert Calsamiglia**<br>
+**Sala Albert Calsamiglia** (Located in [Edifici Roger de Llúria](https://www.upf.edu/web/campus/roger-de-lluria))<br>
 **Ciutadella Campus**<br>
 **Universitat Pompeu Fabra**
 
@@ -11,6 +11,9 @@
 Cristina Mas is a world reporter at the Ara newspaper.
 
 Hosted by the [UPF in Solidarity with Palestine collective](https://upfxpalestina.github.io) and the [Red Universitaria por Palestina (RUxP)](https://www.redxpalestina.org).
+
+Directions to the building: [https://www.upf.edu/web/campus/roger-de-lluria](https://www.upf.edu/web/campus/roger-de-lluria)<br>
+(When you enter you will see signs to Sala Albert Calsamiglia.)
 
 Purchase Dr. Abusalama's book:<br>
 <a href="https://www.bloomsbury.com/uk/between-reality-and-documentary-9780755653119/"><img src="book_cover.jpg" alt="book cover" style="width:200px;"/></a>
