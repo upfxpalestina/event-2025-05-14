@@ -13,8 +13,6 @@ Cristina Mas is a world reporter at the Ara newspaper.
 
 Hosted by the [UPF in Solidarity with Palestine collective](https://upfxpalestina.github.io) and the [Red Universitaria por Palestina (RUxP)](https://www.redxpalestina.org).
 
-We will be serving light Palestinian snacks. For planning purposes, please sign up here if you plan to attend and would like to eat: [https://forms.gle/3Wd7TvWa3bbEjMhi9](https://forms.gle/3Wd7TvWa3bbEjMhi9)
-
 Directions to the building: [https://www.upf.edu/web/campus/roger-de-lluria](https://www.upf.edu/web/campus/roger-de-lluria)<br>
 (When you enter you will see signs to the Albert Calsamiglia room.)
 
