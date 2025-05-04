@@ -1,6 +1,7 @@
 **A book talk by Shahd Abusalama in conversation with Cristina Mas**
 
-**Monday, 28 April 2025, at 18:00**
+**Wednesday, 14 May 2025, at 18:00**<br>
+_(This event was originally planned for 28 April but was rescheduled due to the power outage)_
 
 **Sala Albert Calsamiglia** (Located in [Edifici Roger de Llúria](https://www.upf.edu/web/campus/roger-de-lluria))<br>
 **Ciutadella Campus**<br>
@@ -22,6 +23,6 @@ Purchase Dr. Abusalama's book:<br>
 
 <br>
 
-Download Poster:<br>
-<a href="upf4pal_bookfair_abusalama_2025_04_28.jpeg"><img src="upf4pal_bookfair_abusalama_2025_04_28.jpeg" alt="poster" style="width:200px;"/></a>
+<!-- Download Poster:<br>
+<a href="upf4pal_bookfair_abusalama_2025_04_28.jpeg"><img src="upf4pal_bookfair_abusalama_2025_04_28.jpeg" alt="poster" style="width:200px;"/></a> -->
 
