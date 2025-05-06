@@ -21,6 +21,6 @@ Purchase Dr. Abusalama's book:<br>
 
 <br>
 
-<!-- Download Poster:<br>
-<a href="upf4pal_bookfair_abusalama_2025_04_28.jpeg"><img src="upf4pal_bookfair_abusalama_2025_04_28.jpeg" alt="poster" style="width:200px;"/></a> -->
+Download Poster:<br>
+<a href="upf4pal_bookfair_abusalama_2025_05_14b.jpg"><img src="upf4pal_bookfair_abusalama_2025_05_14b.jpg" alt="poster" style="width:200px;"/></a>
 
