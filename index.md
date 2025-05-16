@@ -11,7 +11,7 @@ _(This event was originally planned for 28 April but was rescheduled due to the 
 
 Cristina Mas is a world reporter at the Ara newspaper.
 
-Hosted by the [UPF in Solidarity with Palestine collective](https://upfxpalestina.github.io) and the [Red Universitaria por Palestina (RUxP)](https://www.redxpalestina.org).
+Hosted by the [UPF in Solidarity with Palestine collective](https://upfxpalestina.github.io), the [Red Universitaria por Palestina (RUxP)](https://www.redxpalestina.org), the [Research Group on Gender and Inequalities (GRETA)](https://www.upf.edu/web/greta), and the [Research Group on Health Inequalities, Environment - Employment Conditions Network (GREDS-EMCONET)](https://www.upf.edu/web/greds-emconet).
 
 Directions to the building: [https://www.upf.edu/en/web/campus/merce-rodoreda](https://www.upf.edu/en/web/campus/merce-rodoreda)<br>
 (When you enter you will see signs to room 24.009, which will be on your left.)
